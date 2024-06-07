@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @uanaaa
-- 👀 I’m interested in making hate……
+- 👀 I’m interested in making money……
 - 🌱 I’m currently learning power system stability and control in Xi'an Jiaotong University.
 - 💞️ I’m looking to collaborate on ...
 - 📫 Email: lh1989605239@outlook.com
