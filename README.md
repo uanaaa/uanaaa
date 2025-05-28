@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @uanaaa
-- 👀 I’m interested in making money……
+- 👀 I’m interested in reading and travelling……
 - 🌱 I’m currently learning power system stability and control in Xi'an Jiaotong University.
-- 💞️ I’m looking to collaborate on ...
-- 📫 Email: lh1989605239@outlook.com
-- 😄 Pronouns: hh
+- 📫 Email: lh@stu.xjtu.edu.cn
+- 😄 Pronouns: secret
 - ⚡ Fun fact: Tjk2001 
 
 <!---
