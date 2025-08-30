@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning power system stability and control in Xi'an Jiaotong University.
 - 📫 Email: lh@stu.xjtu.edu.cn
 - 😄 Pronouns: secret
-- ⚡ Fun fact: kaikaijiang~
+- ⚡ Fun fact: kaikai
 
 <!---
 uanaaa/uanaaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
